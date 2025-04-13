@@ -1,1 +1,1 @@
-# 7404---A-emprical-study
+# 7404
